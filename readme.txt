@@ -1,3 +1,0 @@
-tt
-lllxd
-my student
